@@ -1,2 +1,2 @@
 ![](https://files.catbox.moe/dx2pnz.png)
-<img src="https://files.catbox.moe/dx2pnz.png" width="200" height="100">
+<img src="https://files.catbox.moe/dx2pnz.png" width="50" height="50">
