@@ -1,1 +1,2 @@
 $~~~~~~~~~~~~~~$![](https://files.catbox.moe/ahuwtj.png)
+◞  ‸ ◟       ．       no  real  DNI,,    just  basic  criteria
